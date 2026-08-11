@@ -16,6 +16,7 @@
 * ⭐ **[P-Stream Forks](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/video#wiki_.25B7_p-stream_forks)** - Movies / TV / Anime / Auto-Next
 * ⭐ **[Cinejoy](https://cinejoy.to/)** - Movies / TV / Anime / Auto-Next / [Discord](https://discord.gg/TWKxstBuv9)
 * ⭐ **[PopcornMovies](https://popcornmovies.io/)** or [BingeBox](https://bingebox.to/) - Movies / TV / Anime / Auto-Next / [Discord](https://discord.com/invite/JAxTMkmcpd)
+* ⭐ **[AllFlix](https://allflix.org/)** - Movies / TV / Anime / Auto-Next / [Discord](https://discord.com/invite/x6dmEX4W6b)
 * ⭐ **[Rive](https://www.rivestream.app/)**, [2](https://rivestream.ru/), [3](https://rivestream.vip/) or [CorsFlix](https://watch.corsflix.net), [2](https://corsflix.net), [3](https://watch.corsflix.dpdns.org) - Movies / TV / Anime / Auto-Next / [Status](https://rentry.co/rivestream) / [Discord](https://discord.gg/6xJmJja8fV)
 * ⭐ **[GOATED](https://goated.cx/)** - Movies / TV / Anime / Auto-Next / 4K / [Discord](https://discord.gg/b5SKRgX5Br)
 * ⭐ **[Flixer](https://flixer.gd)** or [Hexa](https://hexa.su/) / [Discord](https://discord.com/invite/yvwWjqvzjE) - Movies / TV / Anime / Auto-Next
